@@ -1,3 +1,5 @@
+#Fuck Haier, may they financial bankruptcy match their moral ono
+
 # Announcement: I have to take the project down in the next few days
 > Dear User,
 > 
